@@ -31,5 +31,5 @@
 ---
 
 ## 📫 Contact Me
-- Email: emailkamu@gmail.com
-- Instagram: @username
+- Email: d.raihan@students.amikom.ac.id
+- Instagram: m.rayyhann
